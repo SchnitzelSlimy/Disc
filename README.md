@@ -1,0 +1,1 @@
+To be promoted you have to do your job well, follow the rules and be active, there will be a non-public list where misdeeds and good deeds will be documented to decide on promotions, recommendations will also be noted. You must also write down the time you join and leave in the channel time-log
